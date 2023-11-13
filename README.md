@@ -1,1 +1,1 @@
-# Swu-Learning-Center
+# SWU
